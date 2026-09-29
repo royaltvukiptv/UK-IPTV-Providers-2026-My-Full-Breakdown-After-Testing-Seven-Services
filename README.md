@@ -1,7 +1,5 @@
 # Best IPTV UK 2026: I Tested 7 Providers — Here's What Actually Works
 
-**Posted by Alpha12 | 29 September 2026**
-
 ---
 
 Let me save you some time and money here.
